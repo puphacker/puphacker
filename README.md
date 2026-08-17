@@ -8,9 +8,7 @@
 
 ㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <div align="center">
 
@@ -21,11 +19,11 @@
 ㅤㅤ
 
  <a href="https://seventhepuppy.straw.page/">
-  <img src="https://github.com/puphacker/puphacker/blob/e2f59972e07abba2311ba1872c56d651da9dc259/Untitled77_20260817085246.png" width="100">
+  <img src="https://github.com/puphacker/puphacker/blob/e2f59972e07abba2311ba1872c56d651da9dc259/Untitled77_20260817085246.png" width="200">
   </a>
 
 ㅤㅤ
 
   <a href="https://takemetoheavenmr007.atabook.org/">
-  <img src="https://github.com/puphacker/puphacker/blob/e2f59972e07abba2311ba1872c56d651da9dc259/Untitled77_20260817085250.png" width="100">
+  <img src="https://github.com/puphacker/puphacker/blob/e2f59972e07abba2311ba1872c56d651da9dc259/Untitled77_20260817085250.png" width="200">
   </a>
