@@ -28,8 +28,6 @@
 
 ㅤㅤㅤㅤ ${\color{#fdd8cb}\textsf{Also if u could}}$ ${\color{#f2ac59}\textsf{please sign my Ata!}}$
 
-ㅤ
-
 ㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://puppyofcheese.atabook.org/"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/bigata.webp" width="130">
 
 
