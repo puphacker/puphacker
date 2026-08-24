@@ -20,7 +20,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://en.pronouns.page/@cheesepup"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/birpron.webp" width="150">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/pupofcheese"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/bigrentr.webp" width="110">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/pupofcheese"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/bigrentr.webp" width="110">
 
 ㅤㅤㅤㅤ ${\color{#fdd8cb}\textsf{Also if u could}}$ ${\color{#f2ac59}\textsf{please sign my Ata!}}$
 
