@@ -14,6 +14,10 @@
 
 ㅤㅤㅤㅤ ${\color{#fdd8cb}\textsf{ENG / ESP}}$ㅤㅤ ${\color{#f2ac59}\textsf{Single, honk mimimi}}$
 
+ㅤ
+
+ㅤ
+
 ㅤㅤㅤㅤㅤㅤㅤㅤ ${\color{#f2ac59}\textsf{If u wanna know more}}$ ${\color{#fdd8cb}\textsf{about me, here's more info!}}$
 
 <a href="https://cheesepup.straw.page/"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/bigstraw.webp" width="150">
@@ -21,6 +25,10 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://en.pronouns.page/@cheesepup"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/birpron.webp" width="150">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/pupofcheese"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/bigrentr.webp" width="110">
+
+ㅤ
+
+ㅤ
 
 ㅤㅤㅤㅤ ${\color{#fdd8cb}\textsf{Also if u could}}$ ${\color{#f2ac59}\textsf{please sign my Ata!}}$
 
