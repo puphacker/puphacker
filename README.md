@@ -10,7 +10,7 @@
 
 ㅤㅤㅤ <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/ellie1.webp" width="70">ㅤ ${\color{#ffdfe0}\textsf{ou}}$ ㅤ ${\color{#f2ac59}\textsf{Seven}}$
 
-ㅤㅤㅤㅤ ${\color{#f2ac59}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#fdd8cb}\textsf{Elliot/007n7hvykin}}$
+ㅤㅤㅤㅤ ${\color{#f2ac59}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#fdd8cb}\textsf{int w me duddd}}$
 
 ㅤㅤㅤㅤ ${\color{#fdd8cb}\textsf{ENG / ESP}}$ㅤㅤ ${\color{#f2ac59}\textsf{Single, honk mimimi}}$
 
