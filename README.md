@@ -8,9 +8,9 @@
 
 <img src="https://github.com/puphacker/puphacker/blob/a67a4d76e4966750a576406518ecb3235b5cf361/mewh1-removebg-preview.png" align="left" width="400" hspace="10">
 
-ㅤㅤㅤ <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/ellie1.webp" width="70">ㅤ ${\color{#ffdfe0}\textsf{ou}}$ ㅤ ${\color{#f2ac59}\textsf{Seven}}$
+ㅤㅤㅤ <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/ellie1.webp" width="70">ㅤ ${\color{#ffdfe0}\textsf{ou}}$ ㅤ ${\color{#f2ac59}\textsf{Neil}}$
 
-ㅤㅤㅤㅤ ${\color{#f2ac59}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#fdd8cb}\textsf{int w me duddd}}$
+ㅤㅤㅤㅤ ${\color{#f2ac59}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#fdd8cb}\textsf{Elliot yume :3}}$
 
 ㅤㅤㅤㅤ ${\color{#fdd8cb}\textsf{ENG / ESP}}$ㅤㅤ ${\color{#f2ac59}\textsf{Single, honk mimimi}}$
 
