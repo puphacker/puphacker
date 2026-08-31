@@ -1,33 +1,33 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=FerretSwirlzie1s&label=pizzas&color=f2ac59&style=plastic"/>
+  <img src="https://komarev.com/ghpvc/?username=FerretSwirlzie1s&label=pizzas&color=eca8a2&style=plastic"/>
 </p>
 
 ㅤㅤㅤ
 
 ㅤㅤㅤㅤ
 
-<img src="https://github.com/puphacker/puphacker/blob/a67a4d76e4966750a576406518ecb3235b5cf361/mewh1-removebg-preview.png" align="left" width="400" hspace="10">
+<img src="https://github.com/puphacker/puphacker/blob/8ea9b9ce528bee66dfd6940072f89c5f4d903bc6/22%20sin%20t%C3%ADtulo_20260830181040.png" align="left" width="600" hspace="10">
 
-ㅤㅤㅤ <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/ellie1.webp" width="70">ㅤ ${\color{#ffdfe0}\textsf{ou}}$ ㅤ ${\color{#f2ac59}\textsf{Neil}}$
+ㅤㅤㅤ <img src="https://github.com/puphacker/puphacker/blob/b37b728d9278f8c1c2f5d48c77789c84b59c9039/Untitled80_20260830180124.png" width="70">ㅤ ${\color{#ffdfe0}\textsf{ou}}$ ㅤ ${\color{#fed4ca}\textsf{Neil}}$
 
-ㅤㅤㅤㅤ ${\color{#f2ac59}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#fdd8cb}\textsf{Elliot yume :3}}$
+ㅤㅤㅤㅤ ${\color{#fed4ca}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#f2ada6}\textsf{Elliot yume :3}}$
 
-ㅤㅤㅤㅤ ${\color{#fdd8cb}\textsf{ENG / ESP}}$ㅤㅤ ${\color{#f2ac59}\textsf{Single, honk mimimi}}$
+ㅤㅤㅤㅤ ${\color{#f2ada6}\textsf{ENG / ESP}}$ㅤㅤ ${\color{#fed4ca}\textsf{Single, honk mimimi}}$
 
 ㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ ${\color{#f2ac59}\textsf{If u wanna know more}}$ ${\color{#fdd8cb}\textsf{about me, here's more info!}}$
+ㅤㅤㅤㅤㅤㅤㅤㅤ ${\color{#fed4ca}\textsf{If u wanna know more}}$ ${\color{#f2ada6}\textsf{about me, here's more info!}}$
 
-<a href="https://cheesepup.straw.page/"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/bigstraw.webp" width="150">
+<a href="https://cheesepup.straw.page/"> <img src="https://github.com/puphacker/puphacker/blob/65c4e03fed1055e17f91abfce7e7fdfdeda6378e/Untitled80_20260830180224.png" width="110">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://en.pronouns.page/@cheesepup"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/birpron.webp" width="150">
+ㅤㅤㅤㅤㅤㅤ <a href="https://en.pronouns.page/@cheesepup"> <img src="https://github.com/puphacker/puphacker/blob/65c4e03fed1055e17f91abfce7e7fdfdeda6378e/Untitled80_20260830180312.png" width="150">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/pupofcheese"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/bigrentr.webp" width="110">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/pupofcheese"> <img src="https://github.com/puphacker/puphacker/blob/65c4e03fed1055e17f91abfce7e7fdfdeda6378e/Untitled80_20260830180335.png" width="120">
 
 ㅤㅤ
 
-ㅤㅤㅤㅤ ${\color{#fdd8cb}\textsf{Also if u could}}$ ${\color{#f2ac59}\textsf{please sign my Ata!}}$
+ㅤㅤㅤㅤ ${\color{#f2ada6}\textsf{Also if u could}}$ ${\color{#fed4ca}\textsf{please sign my Ata!}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://puppyofcheese.atabook.org/"> <img src="https://github.com/puphacker/puphacker/blob/718fadca3fe7d415dceb4e30586eacd41d2234be/bigata.webp" width="130">
+ㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://puppyofcheese.atabook.org/"> <img src="https://github.com/puphacker/puphacker/blob/b37b728d9278f8c1c2f5d48c77789c84b59c9039/Untitled80_20260830180749.png" width="150">
 
 
