@@ -7,7 +7,7 @@
 
 <div align="center">ㅤㅤㅤㅤㅤㅤ
 
-<img src="https://github.com/puphacker/puphacker/blob/49c48b0275267fd024aa8700ed8f70ca66d5c80b/22%20sin%20t%C3%ADtulo_20260830182715.png" width="400">
+<img src="https://github.com/puphacker/puphacker/blob/83fbe141643441cce57f3b9a84f56c38301b1e75/22%20sin%20t%C3%ADtulo_20260830182821.png" width="400">
 
 <img src="https://github.com/puphacker/puphacker/blob/b37b728d9278f8c1c2f5d48c77789c84b59c9039/Untitled80_20260830180124.png" width="70">ㅤ ${\color{#ffdfe0}\textsf{ou}}$ ㅤ ${\color{#fed4ca}\textsf{Neil}}$
 
