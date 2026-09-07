@@ -4,6 +4,15 @@
 
 ㅤㅤㅤ
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xmvxuq4fny3tjrwixvyecwzupq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0d1117&interchange=true&profanity=false&hide_remaster=false&bar_color=fed4ca&bar_color_cover=false">
+  </a>
+</p>
+
+ㅤㅤㅤ
+
+
 
 <div align="center">ㅤㅤㅤㅤㅤㅤ
 
