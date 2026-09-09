@@ -22,7 +22,7 @@
 
 ${\color{#fed4ca}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#f2ada6}\textsf{Elliot yume :3}}$
 
-${\color{#f2ada6}\textsf{ENG / ESP}}$ㅤㅤ ${\color{#fed4ca}\textsf{Single, honk mimimi}}$
+${\color{#f2ada6}\textsf{ENG / ESP}}$ㅤㅤ ${\color{#fed4ca}\textsf{TAKENNN <33}}$
 
 ㅤ
 
