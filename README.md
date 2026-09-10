@@ -20,7 +20,7 @@
 
 <img src="https://github.com/puphacker/puphacker/blob/b37b728d9278f8c1c2f5d48c77789c84b59c9039/Untitled80_20260830180124.png" width="70">ㅤ ${\color{#ffdfe0}\textsf{ou}}$ ㅤ ${\color{#fed4ca}\textsf{Neil}}$
 
-${\color{#fed4ca}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#f2ada6}\textsf{Elliot yume :3}}$
+${\color{#fed4ca}\textsf{17 y.o }}$ㅤㅤㅤ ${\color{#f2ada6}\textsf{Elliot fictkin}}$
 
 ${\color{#f2ada6}\textsf{ENG / ESP}}$ㅤㅤ ${\color{#fed4ca}\textsf{TAKENNN <33}}$
 
