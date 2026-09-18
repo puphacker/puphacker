@@ -36,7 +36,7 @@ ${\color{#fed4ca}\textsf{If u wanna know more}}$ ${\color{#f2ada6}\textsf{about 
 
 ㅤㅤ
 
-${\color{#f2ada6}\textsf{Also if u could}}$ ${\color{#fed4ca}\textsf{please sign my Ata!}}$
+${\color{#f2ada6}\textsf{Sign my Ata and}}$ ${\color{#fed4ca}\textsf{i'll sign yours back!}}$
 
 <a href="https://puppyofcheese.atabook.org/"> <img src="https://github.com/puphacker/puphacker/blob/b37b728d9278f8c1c2f5d48c77789c84b59c9039/Untitled80_20260830180749.png" width="90">
 
