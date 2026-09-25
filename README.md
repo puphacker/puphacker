@@ -32,7 +32,6 @@ ${\color{#fed4ca}\textsf{If u wanna know more}}$ ${\color{#f2ada6}\textsf{about 
 
 <a href="https://en.pronouns.page/@cheesepup"> <img src="https://github.com/puphacker/puphacker/blob/65c4e03fed1055e17f91abfce7e7fdfdeda6378e/Untitled80_20260830180312.png" width="100">
 
-<a href="https://rentry.co/pupofcheese"> <img src="https://github.com/puphacker/puphacker/blob/65c4e03fed1055e17f91abfce7e7fdfdeda6378e/Untitled80_20260830180335.png" width="80">
 
 ㅤㅤ
 
